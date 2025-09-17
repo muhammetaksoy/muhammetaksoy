@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @muhammetaksoy
 - 👀 I’m Frontend Developer
-- 📫 How to reach me: muhammetaksoy777@gmail.com
+- 📫 How to reach me: muhammetaksoy776@gmail.com
